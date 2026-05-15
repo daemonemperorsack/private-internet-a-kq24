@@ -1,4 +1,4 @@
-
+Enhance your Private Internet Access (PIA) experience with Private Internet Access (PIA) vip Client: NAT-firewall & double-VPN, the #1 client. Includes NAT-firewall and double-VPN
 
 
 
